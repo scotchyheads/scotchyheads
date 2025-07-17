@@ -1,3 +1,15 @@
+# 💫 Hi 👋, I'm Akshat
+**A passionate coder || side hustle gamer**
+
+Email Me 👉 ✉️ **shakyaakshat9@gmail.com** For Collaboration/Project or Anything Else. 😊😊
+
+- 🔭 **I’m currently working on:** Myself😶‍🌫️
+- 🌱 **I’m currently learning:** New Skills💻
+- 💬 **Ask me about:** Anything👍
+- 📫 **How to reach me:** just miss me🫀
+- 😄 **Pronouns:** scotch
+- ⚡ **Fun fact:** I Love Tech and Tech Love Me
+
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/Scotchy_heads) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/www.linkedin.com/in/akshat-shakya-370604209) [![Reddit](https://img.shields.io/badge/Reddit-%23FF4500.svg?logo=Reddit&logoColor=white)](https://reddit.com/user/u/scotchyheads) [![Twitch](https://img.shields.io/badge/Twitch-%239146FF.svg?logo=Twitch&logoColor=white)](https://twitch.tv/SCOTCHYHEADS) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:SHAKYAAKSHAT9@GMAIL.COM) 
